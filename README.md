@@ -1,2 +1,2 @@
+给你的图 显示不出来了
 
-![小柏](http://i2.tietuku.com/b257fc3bf68c6c36.jpg)
